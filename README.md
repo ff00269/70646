@@ -18,4 +18,4 @@
 另外，对于刚接触日本AV的用户，推荐从高人气女优作品入手，例如三上悠亚、桥本有菜、明日花绮罗等，这些女优拥有大量高清片源，质量稳定，适合入门用户长期关注。结合个人偏好选择有码或无码内容，并借助安全技术工具，即可在保障体验的同时，免费观看丰富优质的日本AV资源。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff00269/70646 ）</span>
